@@ -1,4 +1,4 @@
-# 
+# smart FreshBooks for PC addons is the best FreshBooks for PC addons with financial-reporting and bank-reconciliation. Safe, reliable, and optimized for maximum performance.
 
 
 
